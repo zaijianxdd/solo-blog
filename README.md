@@ -10,7 +10,7 @@
 
 ### 最新
 
-* [世界，你好！](http://www.zjxdd.top/hello-solo)
+* [世界，你好！](http://zjxdd.top/hello-solo)
 
 
 
